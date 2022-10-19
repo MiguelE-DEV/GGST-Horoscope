@@ -1,0 +1,1 @@
+A Guilty Gear Strive Horoscope!
